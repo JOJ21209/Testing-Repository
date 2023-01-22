@@ -1,1 +1,0 @@
-Servo Switch Plate Mount by carjo3000 on Thingiverse: https://www.thingiverse.com/thing:1156995
